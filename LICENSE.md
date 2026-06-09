@@ -1,4 +1,4 @@
-
+best steal the brainrot base Script is the best steal the brainrot base Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
